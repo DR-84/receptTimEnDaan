@@ -29,4 +29,4 @@ juice of 1/2 a lime
 a small bunch of fresh coriander
 2 tbsp black sesame seeds
 
-6 hamsters
+6 gorilla's
